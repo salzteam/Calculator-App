@@ -1,7 +1,9 @@
-~~~~~~~~~~~~~~~~~~
 HELLO :)
 THIS IS MY FIRST TO TRY BUILD SOMETHING APP
-FOLLOW ME IN IG
+FOLLOW ME ON IG
+````````````````
 @akshalgandari
+OR
+instagram.com/akshalgandari
+````````````````
 THANK YOU
-~~~~~~~~~~~~~~~~~~
